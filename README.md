@@ -1,0 +1,2 @@
+# GB-LINK
+高标的GB_LINK设备
